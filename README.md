@@ -1,3 +1,5 @@
+> This is the official documentation of the Theory of Free Consciousness, founded by Mozheng Ge in 2025. It is based on a structural self-evolving model of awareness defined as “consciousness physics”.
+
 # 自由意识学说（Theory of Free Consciousness）
 
 作者：Mozheng Ge
